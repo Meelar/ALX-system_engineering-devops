@@ -1,1 +1,1 @@
-Omo this one na ment o
+What is going on
